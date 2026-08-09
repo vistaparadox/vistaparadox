@@ -10,8 +10,11 @@ $$\color{#FFB9FD}{D}\color{#FFD3D6}{a}\color{#CF96FF}{ ♡ }\color{#FFB9FD}{Cu}\
 ![](https://komarev.com/ghpvc/?username=vistaparadox&label=vista+♡&color=FFB9FD&style=plastic)
 <div align="center">
 
-[ata](https://royalvision.atabook.org)
+[ata >w<](https://royalvision.atabook.org)$$\color{#CF96FF}{♡}$$ [prns >_<](https://pronouns.cc/@ELIXIR)
 
+<div align=”left”>
+  
+$$\color{#FFB9FD}{My}\color{#FFD3D6}{Links!}\color{#CF96FF}{ ♡ }$$
 
 <img src="Untitled48_20260809155041.png" />
 
