@@ -9,6 +9,7 @@ $$\color{#FFB9FD}{D}\color{#FFD3D6}{a}\color{#CF96FF}{ ♡ }\color{#FFB9FD}{Cu}\
   
 ![](https://komarev.com/ghpvc/?username=vistaparadox&label=vista+♡&color=FFB9FD&style=plastic)
 
+[PonyTown’s Wind0Vista](https://github.com/pt-nominations)
 
 
 <img src="Untitled48_20260809155041.png" />
