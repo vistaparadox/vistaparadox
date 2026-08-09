@@ -8,9 +8,8 @@ $$\color{#FFB9FD}{D}\color{#FFD3D6}{a}\color{#CF96FF}{ ♡ }\color{#FFB9FD}{Cu}\
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=vistaparadox&label=vista+♡&color=FFB9FD&style=plastic)
-
-thank uu for all da awards!!
-[PonyTown’s Wind0Vista](https://github.com/pt-nominations)
+sign my ata pls </3
+[ata](https://royalvision.atabook.org)
 
 
 <img src="Untitled48_20260809155041.png" />
