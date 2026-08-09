@@ -1,4 +1,4 @@
-<img width="2048" height="2048" alt="Untitled44_20260809130113" src="https://github.com/user-attachments/assets/e32d91c7-e7e8-4995-a1d7-e8b8ead0e703" />
+<img Untitled44_20260809130113.png />
 <img width="500" height="500" alt="Untitled44_20260809130113" src="https://github.com/user-attachments/assets/fbc7d65e-e39f-4110-9332-06aee1034261" />
 
 
