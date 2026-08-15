@@ -11,16 +11,28 @@ $$\color{#FFB9FD}{D}\color{#FFD3D6}{a}\color{#CF96FF}{ ♡ }\color{#FFB9FD}{Cu}\
 <p align=“left”>
 <p align=“left”>
   
-$\color{#FFB9FD}{\textsf{cuddle}}$ $\color{#FFD3D6}{\textsf{freely}}$ $\color{#FFDAB5}{\textsf{unless}}$ $\color{#FFB9FD}{\textsf{stated otherwise}}$ </p>
-<p align=“left”> $\color{#FFD3D6}{\textsf{he/it/she}}$ $\color{#FCD9BB}{\textsf{, demiromantic}}$ $\color{#B74C5F}{\textsf{demiboy}}$ $\color{#FCD9BB}{\textsf{, omnisexual}}$ $\color{#D2C3BC}{\textsf{please,}}$ $\color{#B74C5F}{\textsf{interact}}$ $\color{#FAC18E}{\textsf{first}}$ $\color{#D2C3BC}{\textsf{heart}}$ $\color{#FCD9BB}{\textsf{heart}}$ $\color{#B74C5F}{\textsf{pls}}$ </p>
+$\color{#B4A3DC}{\textsf{cuddle}}$ $\color{#CDBEF4}{\textsf{freely}}$ $\color{#EAE2FF}{\textsf{unless}}$ $\color{#FFF6E2}{\textsf{stated}}$
+$\color{#FFEDC0}{\textsf{other}}$
+$\color{#FFE6AE}{\textsf{wise}}$ </p>
+<p align=“left”> $\color{#B4A3DC}{\textsf{.✦ ݁˖ “ There}}$ $\color{#CDBEF4}{\textsf{are}}$ $\color{#EAE2FF}{\textsf{still}}$ $\color{#FFF6E2}{\textsf{things}}$
+$\color{#FFEDC0}{\textsf{i wanted}}$
+$\color{#FFF6E2}{\textsf{to say}}$
+$\color{#EAE2FF}{\textsf{but}}$ $\color{#CDBEF4}{\textsf{i’ve}}$ $\color{#B4A3DC}{\textsf{never}}$ $\color{#CDBEF4}{\textsf{gotten}}$
+$\color{#EAE2FF}{\textsf{the}}$
+$\color{#FFF6E2}{\textsf{chance}}$
+$\color{#FFEDC0}{\textsf{to}}$
+$\color{#FFF6E2}{\textsf{tell}}$
+$\color{#EAE2FF}{\textsf{you⸝⸝” ᛝ}}$ </p>
 
 <div align="center">
 
-[ata >w<](https://royalvision.atabook.org)$$\color{#CF96FF}{♡}$$ [prns >_<](https://pronouns.cc/@ELIXIR)
+⋆˙⟡ [ata](https://royalvision.atabook.org) . [prns.cc](https://pronouns.cc/@ELIXIR) ᢉ𐭩
 
 <div align=”left”>
   
-$$\color{#FFB9FD}{My}\color{#FFD3D6}{Links!}\color{#CF96FF}{ ♡ }$$
+$\color{#B4A3DC}{\textsf{.𖥔 ݁ ˖ My}}$ $\color{#CDBEF4}{\textsf{Links}}$ $\color{#EAE2FF}{\textsf{to}}$ $\color{#FFF6E2}{\textsf{check}}$
+$\color{#FFEDC0}{\textsf{out}}$
+$\color{#FFE6AE}{\textsf{(๑ᵔ⤙ᵔ๑)}}$ </p>
 
 <img src="Untitled48_20260809155041.png" />
 
