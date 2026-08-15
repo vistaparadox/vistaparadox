@@ -11,8 +11,8 @@ $$\color{#FFB9FD}{D}\color{#FFD3D6}{a}\color{#CF96FF}{ ♡ }\color{#FFB9FD}{Cu}\
 <p align=“left”>
 <p align=“left”>
   
-$\color{#FCD9BB}{\textsf{cuddle}}$ $\color{#D2C3BC}{\textsf{freely}}$ $\color{#B74C5F}{\textsf{unless}}$ $\color{#FAC18E}{\textsf{stated otherwise}}$ </p>
-<p align=“left”> $\color{#D2C3BC}{\textsf{she/it}}$ $\color{#FCD9BB}{\textsf{, pansexual}}$ $\color{#B74C5F}{\textsf{bigender}}$ $\color{#FCD9BB}{\textsf{, no}}$ $\color{#D2C3BC}{\textsf{dni,}}$ $\color{#B74C5F}{\textsf{In}}$ $\color{#FAC18E}{\textsf{a}}$ $\color{#D2C3BC}{\textsf{poly}}$ $\color{#FCD9BB}{\textsf{relationship}}$ $\color{#B74C5F}{\textsf{pls}}$ </p>
+$\color{#FFB9FD}{\textsf{cuddle}}$ $\color{#FFD3D6}{\textsf{freely}}$ $\color{#FFDAB5}{\textsf{unless}}$ $\color{#FFB9FD}{\textsf{stated otherwise}}$ </p>
+<p align=“left”> $\color{#FFD3D6}{\textsf{he/it/she}}$ $\color{#FCD9BB}{\textsf{, demiromantic}}$ $\color{#B74C5F}{\textsf{demiboy}}$ $\color{#FCD9BB}{\textsf{, omnisexual}}$ $\color{#D2C3BC}{\textsf{please,}}$ $\color{#B74C5F}{\textsf{interact}}$ $\color{#FAC18E}{\textsf{first}}$ $\color{#D2C3BC}{\textsf{heart}}$ $\color{#FCD9BB}{\textsf{heart}}$ $\color{#B74C5F}{\textsf{pls}}$ </p>
 
 <div align="center">
 
